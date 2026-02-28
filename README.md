@@ -1,0 +1,42 @@
+# Raven & Kreyn – Call Me Again
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Sometimes I don't want to be where I am, so I'll fall in love
+It's the best way to get out of town and stop all the things that I've been thinking of
+
+I know that you don't want to admit it but I know you've seen a couple things before
+It isn't that I wanted to quit
+It's just that I wanted something, and you weren't it
+
+Sometimes I don't want to follow you down
+But sometimes I don't want to go alone
+It feels just like the best part's gone
+Cause you don't talk, you don't call and you're never home
+
+I have seen a couple things before
+And I know the sound of someone giving up
+I think I shouldn't say anymore
+This is all I am and it ain't ever enough
+This is all I am and it ain't ever enough
+
+Are you out there waiting
+For someone with something worth saying?
+Can you call me again tonight?
+
+Sometimes I don't want to wake up alone
+But sometimes, people they just talk too loud
+Do you ever fall asleep with your phone
+Just in case someone calls to ask you out?
+
+I've seen a couple things before
+And I know the sound of someone giving up
+I think I couldn't take anymore
+This is all I am and it ain't ever enough
+This is all I am and it ain't ever enough
+
+Are you out there waiting
+For someone with something worth saying?
+Can you call me again tonight?
+```
